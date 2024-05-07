@@ -1,6 +1,6 @@
 # 赔钱机场官网地址
 
-最新地址：[赔钱机场.com](https://赔钱机场.site/#/register?code=Aqcmrqwx)
+最新地址：[赔钱机场.com](https://www.赔钱机场.site/#/register?code=Aqcmrqwx)
 
 ## 赔钱机场介绍
 
